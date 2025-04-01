@@ -1,8 +1,8 @@
-Hi, I’m @hwejhin aka Bradley or Vik
-I am cringe and im aware of that
-Im autistic and extremely fixated on League of Legends
-DNI - Pro/com/darkship or profiction, R slur "reclaimers", Wilbur soot fans, Mouthwashing (sorry..), Vivziepop supporters
-I block freely and often for anything, most of the time its not personal
+Hi, I’m @hwejhin aka Bradley or Vik |
+I am cringe and im aware of that |
+Im autistic and extremely fixated on League of Legends |
+DNI - Pro/com/darkship or profiction, R slur "reclaimers", Wilbur soot fans, Mouthwashing (sorry..), Vivziepop supporters |
+I block freely and often for anything, most of the time its not personal |
 
 MORE ON STRAWPAGE
 
