@@ -1,6 +1,6 @@
 Hi, I’m @hwejhin aka Bradley or Sett |
 I am cringe and im aware of that |
-Im autistic and extremely fixated on League of Legends|
+Im autistic and extremely fixated on League of Legends |
 I block freely and often for anything, most of the time its not personal 
 
 MORE ON STRAWPAGE
